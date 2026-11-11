@@ -1,4 +1,4 @@
-Skibidi
+One Piece
 About
 One Piece is my favorite anime series.
 
